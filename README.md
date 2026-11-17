@@ -232,7 +232,7 @@ A wedding is more than an event — it is a collection of ceremonies, people and
 
 **Oishee Biswas**
 
-GitHub: [@oishee17](https://github.com/oishee17)
+GitHub: [@selenophile-67](https://github.com/selenophile-67)
 
 ---
 
